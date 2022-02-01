@@ -25,7 +25,7 @@ I look forward to hearing from you.
 
 Andrei
 ```
-
+```
 Mulțumesc foarte mult pentru că m-ați contactat. Sunt întotdeauna interesat să aud despre ce oportunități noi și interesante există. În calitate de programator software, sunt sigur că vă puteți imagina că am un volum foarte mare de recrutori care mi se adresează pe LinkedIn. Este o poziție minunată de privilegiu în care să fiu și sunt recunoscător pentru asta.
 
 Înseamnă totuși că nu am timp să iau un apel cu toți cei care mă adresează. De multe ori, mesajele primite reprezintă într-adevăr o potrivire foarte slabă cu profilul meu tehnic și de carieră.
@@ -41,3 +41,4 @@ Mulțumesc din nou pentru că m-ați contactat!
  
 Aștept cu nerăbdare să ne auzim.
 Andrei
+```
