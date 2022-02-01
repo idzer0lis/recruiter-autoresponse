@@ -30,7 +30,7 @@ Mulțumesc foarte mult pentru că m-ați contactat. Sunt întotdeauna interesat 
 
 Înseamnă totuși că nu am timp să iau un apel cu toți cei care mă adresează. De multe ori, mesajele primite reprezintă într-adevăr o potrivire foarte slabă cu profilul meu tehnic și de carieră.
 
-Mi-ar plăcea să continui conversația, dar înainte de a o face, aș dori să stabilesc nivelului de vechime/senioritate pe care îl căutați.
+Mi-ar plăcea să continui conversația, dar înainte de a o face, aș dori să stabilesc nivelul de vechime/senioritate pe care îl căutați.
 
 Puteți trimite împreună numele companiei, o fișă a postului și detalii despre compensația totală pentru rolul la care vă adresați?
 
