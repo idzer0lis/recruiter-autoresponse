@@ -23,5 +23,21 @@ Thanks again for reaching out!
  
 I look forward to hearing from you.
 
-Alex
+Andrei
 ```
+
+Mulțumesc foarte mult pentru că m-ați contactat. Sunt întotdeauna interesat să aud despre ce oportunități noi și interesante există. În calitate de programator software, sunt sigur că vă puteți imagina că am un volum foarte mare de recrutori care mi se adresează pe LinkedIn. Este o poziție minunată de privilegiu în care să fiu și sunt recunoscător pentru asta.
+
+Înseamnă totuși că nu am timp să iau un apel cu toți cei care mă adresează. De multe ori, mesajele primite reprezintă într-adevăr o potrivire foarte slabă cu profilul meu tehnic și de carieră.
+
+Mi-ar plăcea să continui conversația, dar înainte de a o face, aș dori să stabilesc nivelului de vechime/senioritate pe care îl căutați.
+
+Puteți trimite împreună numele companiei, o fișă a postului și detalii despre compensația totală pentru rolul la care vă adresați?
+
+Deși apreciez foarte mult faptul că recrutorii excepțional de talentați și implicați se adresează în mod constant, sortarea oportunităților serioase și de înaltă calitate din spam ar fi o muncă cu normă întreagă fără un răspuns automat.
+
+În lipsa unor informații detaliate cu privire la natura oportunității în cauză, nu voi fi disponibil pentru discuții ulterioare.
+Mulțumesc din nou pentru că m-ați contactat!
+ 
+Aștept cu nerăbdare să ne auzim.
+Andrei
